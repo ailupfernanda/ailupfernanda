@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ailupfernanda
+- 👀 I’m interested in videogames, writing poetry and TV shows.
+- 🌱 I’m currently learning german, python.
+- 📫 How to reach me ailupfernanda@gmail.com
